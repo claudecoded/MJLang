@@ -49,3 +49,4 @@ DON'T STOP 'TIL YOU GET ENOUGH
 
 HEE-HEE!
 ```
+<img width="270" height="200" alt="image" src="https://github.com/user-attachments/assets/0947400e-c926-4688-8c63-833d24e7bf61" />
